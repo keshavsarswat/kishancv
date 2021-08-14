@@ -1,0 +1,2 @@
+# kishancv
+Over all in 23+ years' experience in Educational industry and IT industry in India and abroad out of which 6+years' experience in Managment in School.2+years' experience in SAP -R/3 enviroment as a SAP Basis &amp; NetWeaver (ECC) also 15+ years'experience in Network Divison with various project in India &amp; Abord. I am seeking a professional career in a reputed growing organization that will help me to enhance my technical expertise in the worldof information &amp; technology.
